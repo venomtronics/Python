@@ -1,3 +1,3 @@
-# Python
-This respiratory has many python codes
-It's may be use ful for you
+Hi👋 
+THIS RESPIRATORY HAS MANY PYTHIN PROJECTS🧾
+And you can develop your python knowledge🧠 
